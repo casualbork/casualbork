@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @casualbork
-- 👀 I’m interested in everything Microsoft stuff. Focusing on the Security stuff. 
+- 👀 I’m interested in everything Microsoft. Focusing on the Security stuff. 
 - 🌱 I’m currently learning ... everything - I'm all over the place!
 - ⚡ Fun fact: Dork Bork dork!
 
